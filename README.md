@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **vishnuvaradhanv2002@gmail.com**
 
-- ⚡ Fun fact **If your code works don't touch it**
+- ⚡ Fun fact **"If your code works don't touch it"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
